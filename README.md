@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Kintan Novia Azzahra, [LinkedIn](https://www.linkedin.com/in/kintan-novia-azzahra-2851201a4/).
+* Azzahra, [azzahra.id](azzahra.com).
